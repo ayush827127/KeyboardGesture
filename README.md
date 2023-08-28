@@ -18,7 +18,8 @@ Join us in revolutionizing the gaming landscape! Whether you're a developer, a g
 
 🔗 Helpful Links:
 
-Demo Video: [YouTube Link]
+Demo Video: https://www.linkedin.com/posts/ayush-gupta-4332731b1_gamecontrol-pythonprojects-gaminginnovation-activity-7101827728571588608-DdJv?utm_source=share&utm_medium=member_desktop
+
 Let's redefine how we play and engage with games. Together, let's elevate the gaming experience to a whole new level! 🕹️🤚🌍
 
 📧 Contact: ayush385361@gmail.com
